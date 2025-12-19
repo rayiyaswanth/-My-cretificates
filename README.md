@@ -1,1 +1,1 @@
-This are the practice codes have done  in -> "vs-code".
+This are the course certificates doen in various platforms to get knowledge.
